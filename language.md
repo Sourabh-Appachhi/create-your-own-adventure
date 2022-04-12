@@ -1,4 +1,4 @@
-If you like Ed Sheeran's songs [for you](english/Ed-Sheeran-music/list-song.md)
+If u like Ed Sheeran's songs [for you](english/Ed-Sheeran-music/list-song.md)
 
 If you wanna rock and roll [Headbang to here](rock/first_step.md)
 
